@@ -1,1 +1,0 @@
-# FinPlus_Analitycs
